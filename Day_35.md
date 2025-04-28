@@ -54,10 +54,10 @@ Still learning, still growing! 🌱
 ## Contact Us:
 If you have any questions or feedback, feel free to reach out!
 
-Email: [email](muskan.tariq086@gmail.com)
+Email: [email](muskantariq2003@gmail.com)
 
 LinkedIn: [Muskan Tariq](https://www.linkedin.com/in/muskan-tariq-095a50282/)
 
-Instagram: [AI Enthusiast](@ai_enthusiast86)
+Instagram: [AI Enthusiast](https://www.instagram.com/ai_enthusiast86/)
 
-YouTube: [AI Enthusiast](@ai_enthusiast86)
+YouTube: [AI Enthusiast](https://www.youtube.com/@ai_enthusiast86)
